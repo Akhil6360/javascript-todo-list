@@ -1,0 +1,1 @@
+A personal portfolio helps students and professionals showcase their skills, projects, education, and achievements in one place. Instead of sharing information through multiple documents, a portfolio provides an easy and professional way for recruiters, companies, and others to understand a person's abilities.
